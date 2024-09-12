@@ -12,6 +12,7 @@ Hi, I am Salman Ahmad
           -> Software and Game Testing (Various Platforms)
           
 For queries reach me here:
+
         Phone# : +92 3006724994
         
         E-mail : salman522.official@gmail.com
